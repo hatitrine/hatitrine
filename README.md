@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hatitrine
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate
+- 📫 You can reach me on hatitrine@gmail.com
